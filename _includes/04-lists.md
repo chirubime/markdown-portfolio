@@ -1,1 +1,8 @@
-Replace this with a list of your favorite things.
+Pros: 
+- Decent clue acceleration
+- Decent evasion
+- Repeatable enemy removal
+
+Cons:
+- Weak health
+- Very succeptible to treacheries especially damage dealing ones
