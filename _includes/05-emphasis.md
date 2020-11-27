@@ -1,0 +1,1 @@
+Be **very** careful of her signature weakness _Dimensional Rift_. It will absolutely destroy you if you don't deal with it properly. The card *Breaking & Entering* is a particularly useful one to deal with it.
