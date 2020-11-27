@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Be **very** careful of her signature weakness _Dimensional Rift_. It will absolutely destroy you if you don't deal with it properly. The card *Breaking & Entering* is a particularly useful one to deal with it.
