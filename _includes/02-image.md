@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Kate Winthrop's Signature card. Makes her a reliable fighter](https://i.imgur.com/7Fo0Vco.png)
